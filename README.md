@@ -1,0 +1,4 @@
+- 👋 Olá, meu nome é Julia, e eu faço aulas de pensamento computacional.
+- 👀 Eu estouatualmente a programarjogos em diferentes plataformas como Scratch, e já aprendi a fazer animações com palavras.
+- 🌱 Tenho vontade de aprender a mexer com edição de música e vídeo.
+- 💞️ Vocẽs podem entrar em contato comigo atravésdo email cavalcante.julia@escola.pr.gov.br
